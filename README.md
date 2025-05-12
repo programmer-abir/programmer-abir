@@ -67,5 +67,9 @@ Hi! I'm a creative, adaptable, and enthusiastic individual with a strong passion
 ## 🧾 References
 
 **Isha Khan**  
-Lecturer, BRAC University  
-Email: isha.khan@bracu.ac.bd
+Former Marketing Associate (ULAB)
+Email: duropoth@gmail.com
+
+**Shazaul Morshed Shajib**
+Ex. PMD Executive, The Ibn Sina Pharmaceutical Industry Ltd.
+Email: sms.nstu@gmail.com
